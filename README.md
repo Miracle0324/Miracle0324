@@ -18,6 +18,8 @@
 
 4.以上方法都不行请截图发送给群管理反馈～
 
+请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
+
 <!---
 Miracle0324/Miracle0324 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
