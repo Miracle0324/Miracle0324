@@ -1,6 +1,6 @@
 水果派 最新地址 👋 (最新更新时间2023-10-28)
 
-水果派免费App https://3s8gp9.com
+水果派免费App https://27sg9p.com
 
 免费美剧APP https://byjfm12.com
 
